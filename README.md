@@ -1,6 +1,6 @@
 # 万达云机场官网地址
 
-最新地址：[wandayun.xyz](https://wdq34w5e12zxzcx.wandayun.xyz/#/register?code=2P8wQLK4)
+最新地址：[wandayun.xyz](https://app.wdycenter.com/register?code=2P8wQLK4)
 
 ## 万达云介绍
 
